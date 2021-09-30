@@ -1,1 +1,1 @@
-# Harde-Game
+# Hard-Game
